@@ -1,16 +1,20 @@
-## Hi there 👋
+建议截图保存，避免造成失联。
+最新入口：https://hejiquan.cc
+备用入口：https://hejiquan.cc
+永久地址-需梯子：https://hejiquan.com
+-------------------------------------------------------------------
+新地址获取方法1：
+hjqkefu@gmail.com
 
-<!--
-**hejiquancom/hejiquancom** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+发送任意内容至邮箱会自动回复最新地址
+-------------------------------------------------------------------
+新地址获取方法2：
+https://github.com/hjqdz
 
-Here are some ideas to get you started:
+打开此网页可快速查看最新地址
+-------------------------------------------------------------------
+新地址获取方法3：
+https://hjq.me
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+打开此网页可快速查看最新地址
+-------------------------------------------------------------------
